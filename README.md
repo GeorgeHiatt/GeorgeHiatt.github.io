@@ -1,1 +1,0 @@
-# GeorgeHiatt.github.io
